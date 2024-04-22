@@ -1,0 +1,1 @@
+This Repository may contain copyrighted content, most serves as a placeholder and will be replaced later, if you want your content removed contanct my email at jacobpospes@gmail.com or submit an issue.
